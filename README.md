@@ -1,2 +1,2 @@
 # lameducks
-only lame ducks and stuff
+only lame ducks and lame stuff
